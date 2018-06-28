@@ -1,3 +1,3 @@
 # verstka
 
-Lol, heh, mda
+Ya zhiv
